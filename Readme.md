@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Aashish ( AJ 💖 )
+# 👋 Hi, I'm Aashish
 
 [![Telegram Channel](https://img.shields.io/badge/Telegram-@Hustle_Airdrops-blue?logo=telegram&style=for-the-badge)](https://t.me/Hustle_Airdrops)
 [![Contact Me](https://img.shields.io/badge/Message-@Legend_Aashish-2CA5E0?logo=telegram&style=for-the-badge)](https://t.me/Legend_Aashish)
